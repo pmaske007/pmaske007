@@ -9,6 +9,8 @@
 
 - 📫 How to reach me **pratikmaske02@gmail.com**
 
+- ⚡ Fun fact **I’m the kind of person who can spend hours analyzing data trends and then spend just as much time researching why giraffes sleep so little. Curiosity has no limits!" 😆🔍**
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/https://www.linkedin.com/in/pratikmaske29/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="https://www.linkedin.com/in/pratikmaske29/" height="30" width="40" /></a>
